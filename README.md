@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Neo-Tech-7Wonders
+- 👋 Hi, I’m Neo-Tech-7Wonders(My real name is Logan, but Neo-Tech-7Wonders sounds way cooler!)
 - 👀 I’m interested in army tanks, coding, race cars, guns and everything mechanical!
 - 🌱 I’m currently learning python, HTML, and Ruby!
 - 💞️ I’m looking to collaborate on (No idea what "collaborate" means so i just going to skip...)
